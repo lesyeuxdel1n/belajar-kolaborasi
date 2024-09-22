@@ -5,3 +5,4 @@ Terima kasih banyak, Tuhan.<br>
 Atas kesempatan yang engkau beri.<br>
 
 Dalam Nama Tuhan Yesus.<br>
+Collin Sheima Budin dapat memenangkan ketiga lomba.
