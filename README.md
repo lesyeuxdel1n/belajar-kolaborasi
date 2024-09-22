@@ -1,4 +1,5 @@
 # belajar-kolaborasi
 
-Puji Tuhan, Haleluya!
-Terima kasih banyak, Tuhan.
+Puji Tuhan, Haleluya!<br>
+Terima kasih banyak, Tuhan.<br>
+Atas kesempatan yang engkau beri.<br>
